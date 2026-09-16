@@ -57,12 +57,16 @@ Iluminação: Cinematográfica e volumétrica. Iluminação de "golden hour" (lu
 ## 🚀 Resultados
 
 <img width="1374" height="1145" alt="ChatGPT Imagem  eu sendo levado por drone" src="https://github.com/user-attachments/assets/81f46fa0-79b5-4573-9c81-2a88cdfcce80" />
+https://github.com/user-attachments/assets/81f46fa0-79b5-4573-9c81-2a88cdfcce80
 
 <img width="1312" height="1199" alt="imagem chatgpt eu em cima do drone" src="https://github.com/user-attachments/assets/ede3b2cb-6afa-4aef-97a6-f11fe0bf50c9" />
+https://github.com/user-attachments/assets/ede3b2cb-6afa-4aef-97a6-f11fe0bf50c9
 
 <img width="1214" height="1295" alt="imagem chatgpt homem sendo levaod por drone" src="https://github.com/user-attachments/assets/fe1a8b36-102f-4f4b-99a1-6bc9babde362" />
+https://github.com/user-attachments/assets/fe1a8b36-102f-4f4b-99a1-6bc9babde362
 
 <img width="1024" height="1536" alt="imagem copilot drone levando" src="https://github.com/user-attachments/assets/92589e1b-1b55-4875-8972-705db20a9f4f" />
+https://github.com/user-attachments/assets/92589e1b-1b55-4875-8972-705db20a9f4f
 
 
 https://github.com/user-attachments/assets/c70ce4a6-c19d-49b7-a4d6-da6de3693857
